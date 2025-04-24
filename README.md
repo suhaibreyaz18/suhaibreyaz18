@@ -1,2 +1,2 @@
 
-# a kid living his deam!
+# a kid living his dream!
